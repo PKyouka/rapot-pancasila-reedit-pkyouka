@@ -1,0 +1,2 @@
+# rapot-pancasila-reedit-pkyouka
+RAPOR PROYEK 3 KEGIATAN PANCASILA UNTUK KURIKULUM MERDEKA
